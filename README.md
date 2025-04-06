@@ -1,6 +1,6 @@
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jru7r5lmz7ln5ay4hof4zhlfse&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
 
 　　‎
   
@@ -8,7 +8,7 @@
 <img src="https://files.catbox.moe/mg2nyx.png" width="36%" height="36%"> 
 </p>
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jru7r5lmz7ln5ay4hof4zhlfse&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <div id="header" align="center">
 
 

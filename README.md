@@ -24,7 +24,7 @@ BYI: Please note that i'm welcome to anyone, and friendly IF I LIKE YOU. I judge
 
 DO NOT bring up any s3x/ual harrasment torwards me, it makes me very uncomfortable for reasons i wont share unless we are close. 
 
-DNI: Basic dni criteria, more on my rentry
+DNI: Basic dni criteria, more on my carrd
 
 INT: If you share the same interests feel free to interact, im more of a listener than talker, so i like people who ramble. Im okay with cuddles, no need to ask. if im with others ask please.
 

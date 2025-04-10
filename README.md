@@ -5,14 +5,14 @@
 　　‎
   
 <p align="center">
-<img src="https://files.catbox.moe/mg2nyx.png" width="36%" height="36%"> 
+<img src="https://files.catbox.moe/w6f2ce.png" width="36%" height="36%"> 
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jru7r5lmz7ln5ay4hof4zhlfse&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <div id="header" align="center">
 
 
-⌗ 　꒰ 🏛️ Ka*veh* and 🍎 Ra*tio* kinnie ⊹ **5**teen  ꒱ 𓂅 Not in a relationship *currently* !!!𓍯
+⌗ 　꒰ 🏛️ Ka*veh* 🍎 Ra*tio* It*to* kinnie ⊹ **5**teen  ꒱ 𓂅 interact if you like my favs i will eat u thanks !!!𓍯
 ‎
 
 
@@ -37,6 +37,6 @@ recomend reading my carrd other than my rentry ! as its very outdated
 ⤷ [byi read carrd](https://ilovechurinchurinchurin.carrd.co/#) [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/) [shared rentry](https://rentry.co/Tootsierolls)  ⤶
 <div align="center">
 
-<img src="https://files.catbox.moe/4w3mhq.png" width="36%" height="36%">
+<img src="https://files.catbox.moe/ci7ofe.jpeg" width="36%" height="36%">
 
 

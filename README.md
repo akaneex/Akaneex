@@ -12,6 +12,14 @@
 <div id="header" align="center">
 
 
+
+FEATURED WALL OF SHAME!!
+
+Imagine copying someones REUQESTED PONY, A GIFT TO ME. then sitting right where i sit. like get the fuck out of here, if i come across you just know im confronting. they left like a bitch
+<p align="center">
+<img src="https://files.catbox.moe/cazszi.jpeg" width="36%" height="36%"> 
+
+
 ⌗ 　꒰ 🏛️ Ka*veh* 🍎 Ra*tio* AND 🪲 It*to* kinnie ⊹ **5**teen  ꒱ 𓂅 interact if you like my favs i will eat u thanks !!!𓍯
 ‎
 

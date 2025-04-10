@@ -30,7 +30,7 @@ INT: If you share the same interests feel free to interact, im more of a listene
 
 Interests: My main interests right now are honkai, jjk, genshin somewhat! i like alot of other things and im willing to join other fandoms <3
 
-also, dont copy my ponies. Not cool man. in the nicest way possible.
+also, dont copy my ponies. Not cool man. 😨
 
 recomend reading my carrd other than my rentry ! as its very outdated
                    

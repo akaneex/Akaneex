@@ -12,7 +12,7 @@
 <div id="header" align="center">
 
 
-⌗ 　꒰ 🏛️ Ka*veh* 🍎 Ra*tio* AND It*to* kinnie ⊹ **5**teen  ꒱ 𓂅 interact if you like my favs i will eat u thanks !!!𓍯
+⌗ 　꒰ 🏛️ Ka*veh* 🍎 Ra*tio* AND 🪲 It*to* kinnie ⊹ **5**teen  ꒱ 𓂅 interact if you like my favs i will eat u thanks !!!𓍯
 ‎
 
 

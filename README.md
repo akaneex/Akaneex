@@ -15,6 +15,8 @@
 
 FEATURED WALL OF SHAME!!
 
+[Copier logs](https://rentry.co/Ittohatescopiers)
+
 Imagine copying someones REQUESTED PONY, A GIFT TO ME. then sitting right where i sit. like get the fuck out of here, if i come across you just know im confronting. they left like a bitch. dni if your friends with this coward. sorry if i come off as rude but i am VERY defensive when it comes down to copiers. please get some talent and stop copying others. 
 <p align="center">
 <img src="https://files.catbox.moe/cazszi.jpeg" width="36%" height="36%"> 
@@ -43,7 +45,7 @@ also, dont copy my ponies. Not cool man. 😨
 
 recomend reading my carrd/2nd rentry other than my 1st rentry ! as its very outdated
                    
-⤷ [carrd](https://ilovechurinchurinchurin.carrd.co/#) [2rentry](https://rentry.co/Elaris) [1rentry](https://rentry.co/forkin) [strawpage](https://Ratios-husband.straw.page/) [shared rentry](https://rentry.co/Tootsierolls)  ⤶
+⤷ [carrd](https://ilovechurinchurinchurin.carrd.co/#) [2rentry](https://rentry.co/Elaris) [1rentry](https://rentry.co/forkin) [strawpage](https://Ratios-husband.straw.page/) [shared rentry](https://rentry.co/Tootsierolls)  [Wallofshame](https://rentry.co/Ittohatescopiers)⤶
 <div align="center">
 
 <img src="https://files.catbox.moe/ci7ofe.jpeg" width="36%" height="36%">

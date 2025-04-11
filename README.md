@@ -41,9 +41,9 @@ Interests: My main interests right now are honkai, jjk, genshin somewhat! i like
 
 also, dont copy my ponies. Not cool man. 😨
 
-recomend reading my carrd other than my rentry ! as its very outdated
+recomend reading my carrd/2nd rentry other than my 1st rentry ! as its very outdated
                    
-⤷ [byi read carrd](https://ilovechurinchurinchurin.carrd.co/#) [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/) [shared rentry](https://rentry.co/Tootsierolls)  ⤶
+⤷ [carrd](https://ilovechurinchurinchurin.carrd.co/#) [2rentry](https://rentry.co/Elaris) [1rentry](https://rentry.co/forkin) [strawpage](https://Ratios-husband.straw.page/) [shared rentry](https://rentry.co/Tootsierolls)  ⤶
 <div align="center">
 
 <img src="https://files.catbox.moe/ci7ofe.jpeg" width="36%" height="36%">

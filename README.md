@@ -24,7 +24,7 @@ Imagine copying someones REUQESTED PONY, A GIFT TO ME. then sitting right where 
 ‎
 
 
-usually free to interact, just dont be akward heh.. *Sometimes* w/ my [Bestie](https://github.com/hitchhikerb) <3 c+h is tots ok!! ask if im with friends
+usually free to interact, just dont be akward heh.. i curse alot so if you dont like that dont int if your nit comfortable *Sometimes* w/ my [Bestie](https://github.com/hitchhikerb) <3 c+h is tots ok!! ask if im with friends
 
 More in depth : : Feel free to walk up to me or cuddle! though i dont walk up to people myself since im a nervous reck. very introverted aswell. If you do wanna talk to me, keep in mind i dont rlly make moves first with new people. you must be patient with me!!
 
